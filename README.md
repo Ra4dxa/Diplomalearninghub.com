@@ -1,2 +1,2 @@
-# Diplomalearninghub.com
+# Diplomalearninghub.info
 I am skylord 
